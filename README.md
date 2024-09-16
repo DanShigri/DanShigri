@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DanShigri
 - 👀 I’m interested in ...programming
-- 🌱 I’m currently learning ...GITHUB
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ...Mind controling
+- 💞️ I’m looking to collaborate on ... Humanity
 - 📫 How to reach me ...through facebook
 - 😄 Pronouns: ...dan
 - ⚡ Fun fact: ...no
